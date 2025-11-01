@@ -1,1 +1,1 @@
-# This is Juliana Gimolieca's Homework folder 
+# This is Juliana Gimolieca's Work folder 
